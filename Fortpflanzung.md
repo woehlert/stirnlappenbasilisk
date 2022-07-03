@@ -1,0 +1,2 @@
+# Fortpflanzung
+Die Paarungszeit ist an keine feste Jahreszeit gebunden. Das Weibchen legt nach einer Trächtigkeit von 40–45 Tagen bis zu 15 Eier, aus denen die Jungtiere nach durchschnittlich 60–75 Tagen schlüpfen. Der Schlupfzeitpunkt ist stark von der Inkubationstemperatur abhängig. Die Jungechsen weisen eine Schlupflänge von rund 12 cm sowie ein Gewicht von 2,5 Gramm auf. Die erste Häutung erfolgt nach 5 bis 6 Wochen. Die Geschlechtsreife tritt Mitte des zweiten Lebensjahres ein. 
