@@ -36,3 +36,5 @@
     Wirth, Michael 2012. Ökologie der Basilisken und Freilandbeobachtungen in Costa Rica. Terraria-Elaphe 2012 (2): 24-35 - get paper here
     Wirth, Michael 2012. Basilisken. Spektakuläre Vertreter der Leguane. Terraria-Elaphe 2012 (2): 14-32 - get paper here
     Young, Allen M. 2014. Basiliscus plumifrons (double-crested basilisk lizard) antagonistic behavior. Herpetological Review 45 (4): 694-695 - get paper here
+
+    usw. usw.
